@@ -1,6 +1,6 @@
 # LX洛雪音乐自制版自定义源分享
 
-音源自2025年8月1日开始公布 
+查看下载链接请至：https://github.com/guoyue2010/LXzizhiyuan/releases
 
 # 注意事项
 
@@ -14,13 +14,9 @@
 
 # 音源下载
 
-本音源由于保密性，不另行在GitHub和GitCode上公布下载地址
+免费版音源请向[3300275727@qq.com](mailto:3300275727@qq.com)发送含有“音源”二字的文档
 
-下载此音源的两种途径
-
-1、加入QQ群
-
-2、在爱发电赞助链接中捐款10元以上，加入付费电圈以获取付费链接
+付费版请前往爱发电页面[https://afdian.com/item/d1b9b1027cd911f0bef352540025c377](https://afdian.com/item/d1b9b1027cd911f0bef352540025c377)购买，费用1元
 
 # 其他信息
 
