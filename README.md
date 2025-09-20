@@ -1,4 +1,4 @@
-# LX洛雪音乐自制版自定义源分享
+# LX聆川音源分享
 
 查看下载链接请至：https://github.com/guoyue2010/LXzizhiyuan/releases
 
