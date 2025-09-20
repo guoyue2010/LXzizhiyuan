@@ -16,7 +16,7 @@
 
 免费版音源请向[3300275727@qq.com](mailto:3300275727@qq.com)发送含有“音源”二字的文档
 
-付费版请前往爱发电页面[https://afdian.com/item/d1b9b1027cd911f0bef352540025c377](https://afdian.com/item/d1b9b1027cd911f0bef352540025c377)购买，费用1元
+付费版请前往爱发电页面[https://afdian.com/item/d1b9b1027cd911f0bef352540025c377](https://afdian.com/item/d1b9b1027cd911f0bef352540025c377)购买，费用5元
 
 # 其他信息
 
